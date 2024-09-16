@@ -12,3 +12,10 @@ Make the cost of your bad habits high and immediate, if you want to leave them.
 - Make it attractive.
 - Make it easy.
 - Make it satisfying.
+
+### 5- Your genes define the area of opporutnity.
+The odds that you've because of your genes, define the area of your potential success. For Example, If you've got a relevatively strong mind then your physique, then your area of opportunity is the one who require mind strength more than physical and vice versa.
+
+### 6- Your natural traits like Introvert or Extrovert is an example of how your genes define the area of your opportunity.
+
+### 7- The marks of whether you are made for a task is not defined by whether you like it but whether you can handle the pain of that task easier than most of the people.
