@@ -19,3 +19,5 @@ The odds that you've because of your genes, define the area of your potential su
 ### 6- Your natural traits like Introvert or Extrovert is an example of how your genes define the area of your opportunity.
 
 ### 7- The marks of whether you are made for a task is not defined by whether you like it but whether you can handle the pain of that task easier than most of the people.
+
+### 8- Your task is what makes you lose track of time.
