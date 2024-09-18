@@ -21,3 +21,5 @@ The odds that you've because of your genes, define the area of your potential su
 ### 7- The marks of whether you are made for a task is not defined by whether you like it but whether you can handle the pain of that task easier than most of the people.
 
 ### 8- Your task is what makes you lose track of time.
+
+### 9- Your task is for which you get better results than the average people, putting the same effort.
