@@ -25,3 +25,5 @@ The odds you have because of your genes define your potential success. For examp
 ### 9. Your task is the one where you get better results than the average person, putting in the same effort.
 
 ### 10. If you can’t find a single quality that gives you exceptional results, look for a combination.
+
+### 11. When you can't win by being better, win by being different.
