@@ -28,4 +28,6 @@ The odds you have because of your genes define your potential success. For examp
 
 ### 11. When you can't win by being better, win by being different.
 
-### 12. Our genes don't eliminate the need for hard work, they clarify it.
+### 12. Our genes don't eliminate the need for hard work, they clarify it.TQDFXC
+
+### 13. Genes can't make you successful, if you're not putting in the effort.
