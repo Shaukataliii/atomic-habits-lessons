@@ -31,3 +31,5 @@ The odds you have because of your genes define your potential success. For examp
 ### 12. Our genes don't eliminate the need for hard work, they clarify it.TQDFXC
 
 ### 13. Genes can't make you successful, if you're not putting in the effort.
+
+### 14. Pick the right habit and life is easy, pick the wrong habit and life is a struggle.
