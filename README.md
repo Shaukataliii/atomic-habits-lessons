@@ -35,3 +35,5 @@ The odds you have because of your genes define your potential success. For examp
 ### 14. Pick the right habit and life is easy, pick the wrong habit and life is a struggle.
 
 ### 15. One of the best ways to keep up with a good habit is: Never miss it twice.
+
+### 16. One of the tips to stick to habits for a long time is to do a task (habit) with manageable difficulty.
