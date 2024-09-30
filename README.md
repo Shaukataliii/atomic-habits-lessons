@@ -36,4 +36,6 @@ The odds you have because of your genes define your potential success. For examp
 
 ### 15. One of the best ways to keep up with a good habit is: Never miss it twice.
 
-### 16. One of the tips to stick to habits for a long time is to do a task (habit) with manageable difficulty.
+### 16. One of the tips to stick to habits for a long time is to pick a task (habit) with manageable difficulty.
+
+### 17. We humans experience peak motivation for a task that is on the edge of our current abilities. i.e not too hard nor too difficult.
