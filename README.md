@@ -39,3 +39,5 @@ The odds you have because of your genes define your potential success. For examp
 ### 16. One of the tips to stick to habits for a long time is to pick a task (habit) with manageable difficulty.
 
 ### 17. We humans experience peak motivation for a task that is on the edge of our current abilities. i.e not too hard nor too difficult.
+
+### 18. Variety if crucial in order to stay in the flow of work. If the tasks at hand are too eays, you'll get bored and if they're too hard, you'll lose motivation.
