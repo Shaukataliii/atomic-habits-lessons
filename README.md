@@ -43,3 +43,5 @@ The odds you have because of your genes define your potential success. For examp
 ### 18. Variety if crucial in order to stay in the flow of work. If the tasks at hand are too eays, you'll get bored and if they're too hard, you'll lose motivation.
 
 ### 19. Successful people are not those who are the most passionate about their job but those who can handle the boredom on doing the same job again and again.
+
+### 20. Men desire novelty so much that those who are doing well wish for a change as much as those who are doing badly.
